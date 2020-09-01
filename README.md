@@ -1,5 +1,5 @@
 # Teacher's day thing
-*Ms Vaz*
+_*Ms Vaz*_
 ⠀
 ⠀
 
