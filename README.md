@@ -23,7 +23,7 @@ good advice
 lots are hidden
 
 within those wrinkles
-
+_
 
 wrinkles of her body
 
@@ -36,8 +36,7 @@ but compared to those of her brain
 those are few
 
 as few as the good teachers like she
-
-
+_
 
 though she uses not-so-happy-sounding language
 
