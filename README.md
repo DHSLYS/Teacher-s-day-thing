@@ -1,7 +1,7 @@
 # Teacher's day thing
 *Ms Vaz*
-_
-_
+⠀
+⠀
 Wrinkles
 
 wrinkles
@@ -23,8 +23,8 @@ good advice
 lots are hidden
 
 within those wrinkles
-_
-_
+⠀
+⠀
 wrinkles of her body
 
 wrinkles of her age
@@ -36,8 +36,8 @@ but compared to those of her brain
 those are few
 
 as few as the good teachers like she
-_
-_
+⠀
+⠀
 though she uses not-so-happy-sounding language
 
 "u gundu ah?"
