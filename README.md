@@ -11,7 +11,7 @@ Wrinkles everywhere
 
 Though her body has many
 
-But her brain has more
+But her brain has more*
 
 Wrinkles storing
 
@@ -37,29 +37,29 @@ But compared to those of her brain
 
 Those are few
 
-As few as the good teachers like she
+As few as the good teachers like her
 ⠀
 ⠀
 
-Though she uses not-so-happy-sounding language
+Though she uses not-so-polite-sounding language #Is this a better word?
 
 "u gundu ah?"
 
 She still cares for us
 
-Poor 
+**Poor #What are these describing?
 
-Naïve
+**Naïve
 
-Innocent
+**Innocent
 
-Unaware
+**Unaware
 
-Scared
+**Scared
 
-Weak
+**Weak
 
-Afraid
+**Afraid
 
 Young sec ones
 
@@ -69,6 +69,6 @@ Caring for our studies
 
 Caring for our future
 
-Harshly but surely
+Harshly but firmly #will firmly be a better word?
 
 Leading us to the right path
