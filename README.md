@@ -2,6 +2,7 @@
 *Ms Vaz*
 ⠀
 ⠀
+
 Wrinkles
 
 wrinkles
@@ -25,6 +26,7 @@ lots are hidden
 within those wrinkles
 ⠀
 ⠀
+
 wrinkles of her body
 
 wrinkles of her age
@@ -38,6 +40,7 @@ those are few
 as few as the good teachers like she
 ⠀
 ⠀
+
 though she uses not-so-happy-sounding language
 
 "u gundu ah?"
