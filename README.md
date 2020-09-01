@@ -5,70 +5,70 @@ _*Ms Vaz*_
 
 Wrinkles
 
-wrinkles
+Wrinkles
 
-wrinkles everywhere
+Wrinkles everywhere
 
-though her body has many
+Though her body has many
 
-but her brain has more
+But her brain has more
 
-wrinkles storing
+Wrinkles storing
 
-knowledge
+Knowledge
 
-wisdom
+Wisdom
 
-good advice
+Good advice
 
-lots are hidden
+Lots are hidden
 
-within those wrinkles
+Within those wrinkles
 ⠀
 ⠀
 
-wrinkles of her body
+Wrinkles of her body
 
-wrinkles of her age
+Wrinkles of her age
 
-those are many
+Those are many
 
-but compared to those of her brain
+But compared to those of her brain
 
-those are few
+Those are few
 
-as few as the good teachers like she
+As few as the good teachers like she
 ⠀
 ⠀
 
-though she uses not-so-happy-sounding language
+Though she uses not-so-happy-sounding language
 
 "u gundu ah?"
 
-she still cares for us
+She still cares for us
 
-poor 
+Poor 
 
-naïve
+Naïve
 
-innocent
+Innocent
 
-unaware
+Unaware
 
-scared
+Scared
 
-weak
+Weak
 
-afraid
+Afraid
 
-young sec ones
+Young sec ones
 
-she is like a mother
+She is like a mother
 
-caring for our studies
+Caring for our studies
 
-caring for our future
+Caring for our future
 
-harshly but surely
+Harshly but surely
 
-leading us to the right path
+Leading us to the right path
